@@ -45,7 +45,7 @@
 
 ### 📫 Let's Connect!
 
-- 🌐 [LinkedIn](https://www.linkedin.com/in/yourprofile)  
+- 🌐 [LinkedIn]linkedin.com/in/arun-damodharan-4b900234b  
 - 📧 Email: leoappu897@gmail.com 
 
 
